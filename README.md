@@ -7,5 +7,5 @@
 - 💬 Ask me about ... Technology, Basketball and Music.
 - 📫 How to reach me: ... https://www.linkedin.com/in/hamzasbuch/
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I'm currently learning how to play the guitar and any assitance would be highly appreciated.
+- ⚡ Fun fact: ... I'm currently learning how to play the guitar and any assistance would be highly appreciated.
 
